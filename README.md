@@ -1,1 +1,0 @@
-# covid_19_digital
